@@ -1,0 +1,1 @@
+Adjunto consignas del TP y su resolución
